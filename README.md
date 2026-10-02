@@ -6,7 +6,7 @@ Avant 1968, on y trouve des sujets des séries mathématiques élémentaires, ma
 
 A partir de 1995, il s'agit des séries S essentiellement.
 
-J'ai aussi mis les sujets d'une année donnée.
+J'ai aussi mis les sujets de 1977 et 1979.
 
 
 
